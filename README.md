@@ -1,0 +1,6 @@
+# MADPrcatical2_20012021073![1](https://user-images.githubusercontent.com/110805942/189986251-e5f304e4-17d9-40a0-ae43-d6bb9d0295a7.jpg)
+![2](https://user-images.githubusercontent.com/110805942/189986259-d5ac6d41-2f9a-4626-a033-6e8dcebdfa57.jpg)
+![3](https://user-images.githubusercontent.com/110805942/189986260-875dd4b3-cd25-40bb-9151-e485cf9a53d3.jpg)
+![4](https://user-images.githubusercontent.com/110805942/189986261-2b8301c5-aa35-4c6d-aa9d-d555f8adea4f.jpg)
+![5](https://user-images.githubusercontent.com/110805942/189986265-80688163-a2c3-412d-a619-a93172029f92.jpg)
+![6](https://user-images.githubusercontent.com/110805942/189986266-29a969e4-d91b-44be-b7f4-de7665c67ad4.jpg)
